@@ -1,0 +1,1 @@
+After the proposal I would need to give them 4 weeks' notice in my current job to make a smooth transition for my co-workers and would be happy to be part of the team after that time.
